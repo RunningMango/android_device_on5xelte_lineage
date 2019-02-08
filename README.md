@@ -1,0 +1,2 @@
+# adroid_device_on5xelte_lineage
+# adroid_device_on5xelte_lineage
